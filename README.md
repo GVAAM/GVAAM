@@ -34,6 +34,10 @@ Sue Luftschein, USC Libraries’ Special CollectionsAmy Knight Powell, USC Art H
 **NEH Project Consultants:**
 Greg Downing, Hyperacuity 
 
+**Newest Build (apk)**: <br/>
+https://drive.usercontent.google.com/download?id=1XchMBfD7JF9FKXGSmpXIMK6S6jvN6gPx&export=download&authuser=0
+
+
 **Thanks to:**
 Luis Rodriguez-Perez, USC Archaeology
 
